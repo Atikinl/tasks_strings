@@ -1,1 +1,1 @@
-# pflfxb yf cnhjrjdsq nbg lfyys[
+задаси на строковый тип данных
